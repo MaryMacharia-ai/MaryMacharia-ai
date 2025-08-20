@@ -1,4 +1,4 @@
-# Hi
+# Hi there,
 I am Mary Njeri Macharia
 # Occupation
 A fleelancer in content writing.
